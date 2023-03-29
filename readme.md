@@ -1,1 +1,2 @@
-Wist je dat een slak drie jaar kan slapen?
+Een slak kan drie jaar slapen.
+De elektrische stoel is uitgevonden door een tandarts
